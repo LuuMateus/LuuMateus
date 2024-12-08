@@ -2,8 +2,8 @@
 
 • Meu nome é *Luciene Mateus*🌼
 
-• Estou estudando no o curso Talento-Tech🖥️
+• Estou estudando no curso Talento-Tech🖥️
 
-• Estou aprendendo a linguagem JavaScript e Python👾
+• Estou aprendendo linguagens de programação👾
 
 • Aqui estarei criando meus projetos e também os-compartilhando✅
